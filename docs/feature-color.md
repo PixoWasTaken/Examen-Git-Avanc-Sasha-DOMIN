@@ -1,3 +1,1 @@
-this file will add a color feature to our uhh...project.
-
-wow, so much color
+hey whats up im the coworker and i just made a huge mistake
