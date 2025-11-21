@@ -1,0 +1,1 @@
+exercice 8 is in preparation, i must make modifications, check my history and stuff as such
